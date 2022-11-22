@@ -1,4 +1,4 @@
-## Web Application Security Research and Content Development at Crowsec EdTech and Machine Creator at Hacking Club by Crowsec EdTech
+## Hi, i'm vert16x
 
 ## Social networks
 
